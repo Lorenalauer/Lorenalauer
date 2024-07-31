@@ -1,4 +1,8 @@
-## Hi there 👋
+## Seja muito bem-vindo(a) ao meu perfil 💜
+_Meu nome é **Lorena**_
+
+![](https://media.tenor.com/oWn4yaJxyCEAAAAM/selena-gomez-selena-gomez-rare.gif)
+
 
 <!--
 **Lorenalauer/Lorenalauer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
