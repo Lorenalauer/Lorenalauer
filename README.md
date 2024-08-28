@@ -2,7 +2,7 @@
 _Meu nome é **Lorena**_
 
 ![](https://media.tenor.com/oWn4yaJxyCEAAAAM/selena-gomez-selena-gomez-rare.gif)
-
+![](https://tenor.com/pt-BR/view/sabrina-carpenter-sabrina-carpenter-cute-sabrina-carpenter-heart-gif-16675421282804871093)
 
 <!--
 **Lorenalauer/Lorenalauer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
